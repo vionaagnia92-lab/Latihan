@@ -1,1 +1,1 @@
-lathan
+latihan
